@@ -10,5 +10,3 @@ The dark or shady side represents Yin, and the white or sunny side represents Ya
 The idea conveyed by the Taijitu symbol is that everything exists in duality, which is the foundational aspect of nature. The concept of good cannot be there without the corresponding concept of bad. Men and women, right and wrong, light and darkness, positive and negative, hot and cold, day and night, and all the other contrasting elements are inter-dependent and cannot exist in isolation.
 
 In a way, the swirling motion suggested by the Taijitu symbol also describes the divine circle of life. The world changes constantly and moves forward in distinct cycles, where the day turns into night and the night leads on to another day, every birth ends in death and death leads to rebirth.
-
-eddee
