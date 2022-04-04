@@ -11,3 +11,4 @@ The idea conveyed by the Taijitu symbol is that everything exists in duality, wh
 
 In a way, the swirling motion suggested by the Taijitu symbol also describes the divine circle of life. The world changes constantly and moves forward in distinct cycles, where the day turns into night and the night leads on to another day, every birth ends in death and death leads to rebirth.
 
+eddee
